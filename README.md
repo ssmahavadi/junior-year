@@ -1,1 +1,1 @@
-# Junior Year (2019-2020) Programs
+# Junior Year (2019-2020) Projects
